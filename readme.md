@@ -1,4 +1,4 @@
-# HASEBE Masahiko Chorl Works
+# HASEBE Masahiko Choral Works
 
 以下は、私が作曲した合唱曲の一覧です。  
 未出版(あるいは絶版)のものは、PDFファイルをフォルダに置きました。  
